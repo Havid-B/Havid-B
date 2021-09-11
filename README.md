@@ -7,4 +7,4 @@ My name is Happiness, I am a Blockchain Engineer
 - 👯 I’m looking to collaborate on DApps
 - 📫 How to reach me: [Havid-B](https://twitter.com/meet_havidb)
 - 😄 Pronouns: She Tech Lady
-- ⚡ Fun fact: Like beautiful things
+- ⚡ Fun fact: Love Jehovah, people, creation. I love life 🤗
